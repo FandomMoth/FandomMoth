@@ -6,7 +6,7 @@ ____
 
 `𝚠𝐚𝚛𝐧𝚒𝐧𝚐 𝐭𝚑𝐢𝚜 𝐮𝚜𝐞𝚛 𝐢𝚜 𝐚 𝚊𝐬𝚜𝐡𝚘𝐥𝚎 𝐚𝚝 𝐦𝚘𝐬𝚝`
 ____
-![](https://files.catbox.moe/8s2njd.jpg))
+![](https://files.catbox.moe/8s2njd.jpg)
 ____
 `your a beautiful human being, just wish you can see how i do..`
 ____
