@@ -8,6 +8,6 @@ ____
 ____
 ![](https://files.catbox.moe/8s2njd.jpg)
 ____
-`your a beautiful human being, just wish you can see how i do..`
+`𝚢𝐨𝚞𝐫 𝚊 𝐛𝚎𝐚𝚞𝐭𝚒𝐟𝚞𝐥 𝚑𝐮𝚖𝐚𝚗 𝐛𝚎𝐢𝚗𝐠, 𝐣𝚞𝐬𝚝 𝐰𝚒𝐬𝚑 𝐲𝚘𝐮 𝚌𝐚𝚗 𝐬𝚎𝐞 𝚑𝐨𝚠 𝐢 𝚍𝐨..`
 ____
-![](https://files.catbox.moe/b82uxj.jpg)
+
