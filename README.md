@@ -1,4 +1,4 @@
-![]()
+![](https://litter.catbox.moe/q5sxpgvz0atqn3ue.png)
 ____
 `𝚁𝐨𝚘 , 𝚙𝐥𝚞𝐫𝚊𝐥 , 𝟏𝟼 , 𝚞𝐩𝚍𝐚𝚝𝐢𝚗𝐠 𝚙𝐫𝚗𝐬.𝐜𝚌 + 𝚜𝐭𝚛𝐚𝚠𝐩𝚊𝐠𝚎`
 
